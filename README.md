@@ -1,0 +1,1 @@
+Maggi is made up of refined flour or maida, which is not easily digested. Also, it contains preservatives, which are unhealthy and is high in sodium, which is a common risk factor of high blood pressure.
